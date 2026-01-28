@@ -4,7 +4,9 @@ Hihi ! Itrapped Yumeshipper + fictionkin. Do i like Bountyhunter + Frozenpizza? 
 
 Idm you give me tips on how to tint/shade and other stuff.
 
-Wip giggles,,
+lazy but ok
+
+imso kawaii nya
 
 Itrapped pic - [Credits](https://x.com/JZ_ZOO/status/1928441637413245092/photo/1)
 
